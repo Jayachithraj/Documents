@@ -4,10 +4,8 @@ You can watch [videos here](https://www.youtube.com/playlist?list=PLia1f8x4BobQ3
 ![Alt text](assets/image1.png)
 
 
-This page will help you to practice the letters which is demonstratig in the video
+[Swaraksharangal](Swaraksharangal.pdf) : This book helps you to practice the letters which is demonstratig in the video
 
-[Swaraksharangal](Swaraksharangal.pdf)
 
-This page help to practice malayalam letters  in double lined paper.
+[2 Line page](linepage.pdf) : This page helps to practice malayalam letters  in double lined paper.
 
-[2 Line page](linepage.pdf)
